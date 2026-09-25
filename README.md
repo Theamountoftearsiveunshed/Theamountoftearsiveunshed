@@ -8,12 +8,15 @@
 <img src=Untitled114_20260925133044.png width=100% height=90%>
 -
 <p>   {⚠︎} 𝘔𝘪𝘮𝘪 / 𝘊𝘢𝘭𝘪𝘦 𖦹 𝙢𝙞𝙣𝙤𝙧 🎧ྀི♪⋆.✮ </p>
-<p>  ╰┈➤ 𝘗𝘢𝘯 𝜗ৎ 𝘕𝘰𝘯 𝘣𝘪𝘯𝘢𝘳𝘺 ⋆˙⟡ </p>
+<p>  ╰┈➤ 𝘗𝘢𝘯 ⋮ 𝘢𝘤𝘦 𝜗ৎ 𝘕𝘰𝘯 𝘣𝘪𝘯𝘢𝘳𝘺 ⋆˙⟡ </p>
 <p> (落) 𝘐𝘯𝘧𝘱 + 𝘣𝘢𝘴𝘪𝘤 𝘥𝘯𝘪 𝘤𝘳𝘪𝘵𝘦𝘳𝘪𝘢 𓂃</p>
 </div>
 
 <p align=“left"> 
-<a href=https://thetearsiveunshed.atabook.org/“>新𝘣𝘰𝘰𝘬♡</a> </p>
+<a href=https://thetearsiveunshed.atabook.org/>新𝘣𝘰𝘰𝘬♡</a> </p>
  
 <p align="right">
-<a href=https://pronouns.cc/@Thenarcissiticmimikins”>𝘱𝘳𝘯𝘴.𝘤𝘤</a> </p>
+<a href=https://pronouns.cc/@Thenarcissisticmimikins>𝘱𝘳𝘯𝘴.𝘤𝘤</a> </p>
+
+<div align=center>
+𝘙𝘮𝘬𝘪𝘯𝘨 𝘴𝘵𝘳𝘢𝘸… </div>
