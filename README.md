@@ -4,5 +4,5 @@
 <p>જ⁀➴ 𝘓𝘰𝘷𝘦𝘥 𝘣𝘺 𝘢𝘯𝘺𝘰𝘯𝘦 𝘣𝘶𝘵 𝘵𝘩𝘦𝘮𝘴𝘦𝘭𝘷𝘦𝘴.</p>
 <img src=Untitled7_20260924213500.png width=300>
  #𝘊𝘶𝘳𝘴𝘦𝘥.
- 
+<img src=Untitled114_20260925132212.png width=100% height=90>
 ## info.
