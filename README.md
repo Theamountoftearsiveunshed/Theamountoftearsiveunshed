@@ -5,7 +5,7 @@
 <img src=Untitled7_20260924213500.png width=300>
  #𝘊𝘶𝘳𝘴𝘦𝘥.
 
-<img src=Untitled114_20260925133044.png width=100% height=90%>
+<img src=Untitled114_20260925133044.png width=100% height=80%>
 -
 <p>   {⚠︎} 𝘔𝘪𝘮𝘪 / 𝘊𝘢𝘭𝘪𝘦 𖦹 𝙢𝙞𝙣𝙤𝙧 🎧ྀི♪⋆.✮ </p>
 <p>  ╰┈➤ 𝘗𝘢𝘯 ⋮ 𝘢𝘤𝘦 𝜗ৎ 𝘕𝘰𝘯 𝘣𝘪𝘯𝘢𝘳𝘺 ⋆˙⟡ </p>
