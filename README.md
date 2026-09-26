@@ -29,6 +29,6 @@
   </a>
 </p>
 
-<img alt="Static Badge" src="https://img.shields.io/badge/dreamers-1111-lightyellow?style=for-the-badge" width=43%>
+<img alt="Static Badge" src="https://img.shields.io/badge/dreamers-1111-lightyellow?style=for-the-badge" width=23%>
 
 
