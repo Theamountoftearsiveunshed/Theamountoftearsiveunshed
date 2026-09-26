@@ -31,6 +31,4 @@
   </a>
 </p>
  <div align=right>
-<img alt="Static Badge" src="https://img.shields.io/badge/dreamers-1111-lightyellow?style=for-the-badge" width=23%>
-
-
+  <img alt="Static Badge" src="https://img.shields.io/badge/dreamers-1111-lightyellow?style=flat" width=15%>
