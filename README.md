@@ -2,7 +2,7 @@
 <img src=Untitled21_20260925162831.png width=160% height=90%>
 <p>𝘛𝘩𝘦 𝘴𝘸𝘦𝘦𝘵𝘦𝘴𝘵 𝙎𝙞𝙣𝙣𝙚𝙧.ִֶָ 🪽་༘</p>
 <p>જ⁀➴ 𝘖𝘩.ᐟ 𝘍𝘰𝘳𝘨𝘪𝘷𝘦 𝘮𝘦 𝘓𝘰𝘳𝘥 ◞ 𝘖𝘩 𝘐’𝘮 𝘢 𝘨𝘰𝘰𝘥 “𝘨𝘪𝘳𝘭”⸝⸝ </p>
-<img src=Untitled7_20260924213500.png width=300>
+<img src=Untitled7_20260924213500.png width=54%>
  #𝘋𝘰𝘰𝘮𝘦𝘥.
 <br>
 <img src=Untitled114_20260925133044.png width=100% height=80%>
