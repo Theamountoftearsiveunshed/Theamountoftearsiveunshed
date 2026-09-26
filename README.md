@@ -28,3 +28,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31y73jvka2jzry5yg6ea7iu44psu&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
   </a>
 </p>
+
+<img alt="Static Badge" src="https://img.shields.io/badge/dreamers-1111-lightyellow?style=for-the-badge" width=43%>
+
+
